@@ -4,3 +4,8 @@
 # come understand my feelings
 # do you believe
 # where you are do
+# i love you
+# ilove you un
+# do you delieve
+# do you understand
+# do you
